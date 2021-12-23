@@ -43,4 +43,4 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 ### Contact Us  
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.  
 Contact Information:  
-Email: 190109003@stu.sdu.edu.kz
+Email: 190103445@stu.sdu.edu.kz
